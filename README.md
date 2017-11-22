@@ -4,7 +4,7 @@ A todos nosotros nos gusta el humor y los chistes, por eso en ChistesyBromas.com
 
 En sólo 141 páginas muy ilustradas, Stop Me If You' ve Heard Esto es un equivalente literario de una rutina de tres minutos de pie - rápido, sin complicaciones y circular - por una buena razón. Pocos chistes son realmente nuevos. Holt rastrea los chistes de flatulencia de los escolares hasta que los griegos y el jefe de Wall Street vuelven al Nuevo Testamento. "Nadie cuenta chistes por primera vez", proclamó el difunto crítico y folklorista Gershon Legman, uno de los amigos del humor que Holt apareció en su investigación.
 
-Pero qué ocurre con los <a href="https://chistesybromas.com/graciosos/" rel="follow">chistes graciosos</a>?
+Pero qué ocurre con los <A href="https://chistesybromas.com/graciosos/" style="color:#000 !imporant; text-decoration:none !important" rel="author">chistes graciosos</a>?
 
 Holt hace un buen trabajo analizando diferentes teorías de la risa - desde cómo alivia la inhibición hasta la idea de que nos permite golpear a los superiores. Pero Legman y sus compañeros sabuesos del humor roban el espectáculo. Según la leyenda, Legman inventó el eslogan de los años 60,"hacer el amor, no la guerra", consiguió que Anais Nin escribiera un concierto erótico de dólar por página para un coleccionista de Oklahoma, hizo su debut literario con un libro sobre sexo oral, y era tan pobre que llevaba una cuerda para un cinturón. (Leer sobre Legman y otros padres primitivos de la bromista.)
 
